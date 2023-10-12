@@ -3,7 +3,7 @@
 
 👋 Hello! I’m @kaceyclougher!
 
-Navigating the world of data one project at a time.
+Interested in all things data. I'm either here or petting some cows in a field somewhere 🐄
 
 <!---
 kaceyclougher/kaceyclougher is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
