@@ -1,5 +1,5 @@
 
-![leaf-pet](https://github.com/kaceyclougher/kaceyclougher/assets/137820049/d8761a25-f90d-4339-8e94-8a52492f0098)
+![giphy](https://github.com/kaceyclougher/kaceyclougher/assets/137820049/82406fc2-c4ac-4ceb-8880-4e44fd56ada4)
 
 👋 Hello! I’m @kaceyclougher!
 
